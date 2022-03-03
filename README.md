@@ -1,1 +1,2 @@
-# sayofthelor.github.io
+# sayofthelor
+coming soon lol
